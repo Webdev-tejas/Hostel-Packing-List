@@ -1,14 +1,11 @@
-# Hostel-Packing-List
+# 🏠 Hostel Essentials Checklist
 Hostel Packing List India 2026 – Complete checklist for boys &amp; girls joining college hostel. Find essential hostel items, clothes, toiletries, electronics, study materials, kitchen essentials, bedding, and daily-use products for students moving to hostel for the first time.
 
 Download the Complete PDF Here: https://drive.google.com/file/d/1nnLrhVyy8ENU4EMyQBirrJ8dgSUcYnkr/view?usp=drive_link
 
 Amazaon Curation: https://www.amazon.in/shop/tejasagrawal/curation/3df80c3b-fe7f-44e6-a50b-52727d7403f7
 
-# 🏠 Hostel Essentials Checklist
-
 ---
-
 # 🩺 BASIC MEDICAL
 - [ ] Thermometer  
 - [ ] Ointment  
